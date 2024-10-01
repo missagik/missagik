@@ -7,3 +7,7 @@ Fun facts
 - 📷 I have just started to teach myself photography this year!
 - 🌱 I enjoy being outdoors whenever I get the chance!
 - 🎮 I enjoy playing primarily small indie video games in my down time!
+
+# Contact me!
+You can email me at: [Analiese.Krishtalka@edu.sait.ca](mailto:Analiese.Krishtalka@edu.sait.ca)
+Or connect with me via [Linkedin](https://ca.linkedin.com/)
